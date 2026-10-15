@@ -1,0 +1,1 @@
+# Spatiotemporal-Changes-in-Hourly-Burning-Index-Across-the-Western-United-States-1985---2024
